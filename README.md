@@ -25,4 +25,6 @@ THE BEST PROJET OMG DAAAMN THAT SO AMAZING WAAAAH GOING CRAZY
 Veuillez baissez votre luminosité, nous ne somme pas responsable en cas de brulure de la rétine à cause des couleurs choisit
 (veuillez excuser notre daltonisme poussé)
 
+ce projet ce veux trollesque mais sérieux
+
 cordialement, bon courage
